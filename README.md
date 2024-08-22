@@ -10,4 +10,4 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 
 
 ![](https://media1.tenor.com/m/7PadBzBzfecAAAAd/choi-san-san.gif)
-![]https://media1.tenor.com/m/XTG5AAcZD70AAAAd/choi-san-san.gif
+![]().https://media1.tenor.com/m/XTG5AAcZD70AAAAd/choi-san-san.gif
